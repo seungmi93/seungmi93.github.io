@@ -1,1 +1,1 @@
-# seungmi93.github.io
+# seungmidev.github.io
